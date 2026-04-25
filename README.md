@@ -68,4 +68,4 @@ Urban transportation planning and traffic pattern analysis.
 Author 
 M. Sharath Kumar
 
-LinkedIn: [https://www.linkedin.com/in/sharath-kumar-morangapalli/]
+LinkedIn: [https://www.linkedin.com/feed/update/urn:li:activity:7453692647094976512/]
